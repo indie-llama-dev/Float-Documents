@@ -1,4 +1,4 @@
-# Float
+# Float Privacy Policy
 
 Privacy Policy
 
